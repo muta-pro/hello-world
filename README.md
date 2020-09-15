@@ -3,4 +3,4 @@ starting something new
 
 Hi
 
-I am focusing on something that can contibute to my future career. 
+I am focusing on something that can contribute to my future career. 
